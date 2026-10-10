@@ -83,7 +83,3 @@ Thanks to **SkillCraft Technologies** for this opportunity.
 
 ---
 
-## 📧 Contact
-
-**Aravind Ili**   
-[LinkedIn](https://linkedin.com/in/aravind-i-4b28a525a)
